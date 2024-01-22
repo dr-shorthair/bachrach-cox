@@ -25,7 +25,7 @@ been making the unpleasant drive across south Birmingham as often as COVID allow
 changes had been more gradual for them. Richard and I said our farewells to him before we returned
 home.
 
-![Walking in the wet on Simon's birtday](/assets/2022/image7.png)
+![Walking in the wet on Simon's birthday](/assets/2022/image7.png)
 
 So most of January, I was at my sister's house, sharing a bedroom with my
 brother for the first time in 45 years. Richard and I took advantage of this to visit a few old haunts,
