@@ -16,23 +16,23 @@ Here’s a quick run-down on what happened in the Bachrach-Cox household this ye
 
 OK – this is about what I can manage right now.  Tonight we go to Xmas eve dinner at Annie and Joe’s.  Tomorrow breakfast at Anna and Chris’s, then lunch at Gill and Marek’s.  Monday we will go down to Gill and Marek’s holiday house at Margaret River and see in the New Year with the usual culprits.
 
-![](https://dr-shorthair.github.io/bachrach-cox/assets/2023/image001.jpg)
+![](https://dr-shorthair.github.io/bachrach-cox/assets/2002/image001.jpg)
 
-![](https://dr-shorthair.github.io/bachrach-cox/assets/2023/image003.jpg)
+![](https://dr-shorthair.github.io/bachrach-cox/assets/2002/image003.jpg)
 
-![](https://dr-shorthair.github.io/bachrach-cox/assets/2023/image005.jpg)
+![](https://dr-shorthair.github.io/bachrach-cox/assets/2002/image005.jpg)
 
-![](https://dr-shorthair.github.io/bachrach-cox/assets/2023/image007.jpg)
+![](https://dr-shorthair.github.io/bachrach-cox/assets/2002/image007.jpg)
 
-![](https://dr-shorthair.github.io/bachrach-cox/assets/2023/image009.jpg)
+![](https://dr-shorthair.github.io/bachrach-cox/assets/2002/image009.jpg)
 
-![](https://dr-shorthair.github.io/bachrach-cox/assets/2023/image011.jpg)
+![](https://dr-shorthair.github.io/bachrach-cox/assets/2002/image011.jpg)
 
-![](https://dr-shorthair.github.io/bachrach-cox/assets/2023/image013.jpg)
+![](https://dr-shorthair.github.io/bachrach-cox/assets/2002/image013.jpg)
 
-![](https://dr-shorthair.github.io/bachrach-cox/assets/2023/image015.jpg)
+![](https://dr-shorthair.github.io/bachrach-cox/assets/2002/image015.jpg)
 
-![](https://dr-shorthair.github.io/bachrach-cox/assets/2023/image017.jpg)
+![](https://dr-shorthair.github.io/bachrach-cox/assets/2002/image017.jpg)
 
 ‘Til next time …
 
