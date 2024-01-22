@@ -9,7 +9,7 @@ when I was in transit in Darwin, my departure from Australia having been delayed
 COVID shot. My brother Richard had managed to travel a week earlier, and he and my sister Sarah were with
 mum at the end. When I arrived it was straight into logistics. Tim was heroic as usual.
 
-![Mum's room at Olivet, Ackocks Green](./image/image11.png)
+![Mum's room at Olivet, Ackocks Green](/bachrach-cox/assets/2022/image11.png)
 
 The funeral was nice. There was a big turnout, including many relatives that I
 hadn't seen in decades, and lots of Blands. We re-connected with our cousins James and Michael who
@@ -25,7 +25,7 @@ been making the unpleasant drive across south Birmingham as often as COVID allow
 changes had been more gradual for them. Richard and I said our farewells to him before we returned
 home.
 
-![Walking in the wet on Simon's birtday](./image/image7.png)
+![Walking in the wet on Simon's birtday](/bachrach-cox/assets/2022/image7.png)
 
 So most of January, I was at my sister's house, sharing a bedroom with my
 brother for the first time in 45 years. Richard and I took advantage of this to visit a few old haunts,
@@ -37,7 +37,7 @@ across some local fields and small hills. Just before returning home, Sarah, Tim
 break at Sarah and Tim's cabin just outside Hay-on-Wye, and had a cold walk in the Brecons, and a
 short visit with the youngest Bland (Verity) and her new baby on their sheep and cattle farm near Llandeilo.
 
-![Sedgley Beacon](./image/image8.png)
+![Sedgley Beacon](/bachrach-cox/assets/2022/image8.png)
 
 Travel in January was still challenging. The COVID requirements for travelling
 through 3rd countries such as Singapore were impossible to parse, and changing daily, so thank goodness
@@ -46,7 +46,7 @@ cousin Alison's youngest daughter Danielle. We had only made contact with this b
 of Covid. We later attended big brother James' wedding in a muddy field in November, and had Xmas day
 at Alison and Bernie's in the Dandenongs, so we are all good friends now.
 
-![Jammes and Annie's wedding](./image/image6.png)
+![Jammes and Annie's wedding](/bachrach-cox/assets/2022/image6.png)
 
 Melbourne had one of the longest lockdowns in the world, and getting back to
 something resembling 'normal' has been a tentative process for a population with communal PTSD,
@@ -58,8 +58,8 @@ days in Perth. A real nostalgic experience for us to sit around the campfire for
 friends. A highlight was a Numbat sighting on a bushwalk - quite a treat as there are only about 3000 in
 existence.
 
-![Bushwalking in WA - 1](./image/image14.png)
-![Bushwalking in WA -2](./image/image1.png)
+![Bushwalking in WA - 1](/bachrach-cox/assets/2022/image14.png)
+![Bushwalking in WA -2](/bachrach-cox/assets/2022/image1.png)
 
 Then Amy and Abby both had a month in US, overlapping in New York for a couple of
 weeks. Abby hadn't seen her grandmother in 8 years, and the reunion was far from smooth. Her frisbee
@@ -103,9 +103,9 @@ effort was very impressive - there were hundreds of volunteers involved, so in r
 didn't stand a chance. A number of those involved stated that it was a highlight of their lives! We
 have made good new friends.
 
-![Zoe campaigning](./image/image9.png)
-![Amy campaigning](./image/image12.png)
-![Simon & Darren celebrating](./image/image4.png)
+![Zoe campaigning](/bachrach-cox/assets/2022/image9.png)
+![Amy campaigning](/bachrach-cox/assets/2022/image12.png)
+![Simon & Darren celebrating](/bachrach-cox/assets/2022/image4.png)
 
 However, the week leading up the election brought two difficult things. [We lost
 Dad](https://phillipcox.muchloved.com/) on the Tuesday - I got the call from Sarah while door-knocking. And on the Friday - just prior to going out to set up
@@ -123,15 +123,15 @@ November. The building work in 2021 had left one tree, one partial hedge, and a 
 native garden (strong WA theme) and a pond. We have a 'food forest' - i.e. a big perma-culture
 area with a mixture of leaves, fruits, and a few flowers.
 
-![garden #1](./image/image2.png)
-![garden #2](./image/image5.png)
-![garden #3](./image/image13.png)
+![garden #1](/bachrach-cox/assets/2022/image2.png)
+![garden #2](/bachrach-cox/assets/2022/image5.png)
+![garden #3](/bachrach-cox/assets/2022/image13.png)
 
 And after 35 years service to CSIRO, I decided to call it quits at the end of the
 year. My official retirement is the day after my birthday, but I'm on annual leave until then.
 
-![Retirement team](./image/image10.png)
-![Retirement family](./image/image15.png)
+![Retirement team](/bachrach-cox/assets/2022/image10.png)
+![Retirement family](/bachrach-cox/assets/2022/image15.png)
 
 Overall, notwithstanding a couple of high points, I think we were happy to see the
 back of 2022. Hope this all makes sense, and that your lives were less complicated than ours.
