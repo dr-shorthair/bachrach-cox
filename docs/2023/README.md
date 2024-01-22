@@ -121,7 +121,7 @@ Notwithstanding the retirement, through a combination of commitments and opportu
 
 ![CRISPY meetings](https://dr-shorthair.github.io/bachrach-cox/assets/2023/CRISP-meeting.jpg)
 
-### At the footy
+### At the footy (St Kilda AFLW)
 
 ![Local culture](https://dr-shorthair.github.io/bachrach-cox/assets/2023/CRISP-WAFL.jpg)
 
@@ -145,7 +145,7 @@ Notwithstanding the retirement, through a combination of commitments and opportu
 
 <a id="OGC"></a>
 
-### Singapore in September
+## Singapore in September
 
 ### Strange place to keep a ship
 
@@ -159,7 +159,7 @@ Notwithstanding the retirement, through a combination of commitments and opportu
 
 ## Germany in October
 
-### France / Germany / Luxembourg touch in the middel of the river in Schengen
+### France / Germany / Luxembourg touch in the middle of the river in Schengen
 
 ![This is Schengen](https://dr-shorthair.github.io/bachrach-cox/assets/2023/Dagstuhl-schengen.jpg)
 
@@ -225,3 +225,5 @@ Notwithstanding the retirement, through a combination of commitments and opportu
 
 ![Seeing out the old year](https://dr-shorthair.github.io/bachrach-cox/assets/2023/Old-year-1.jpg)
 ![Seeing out the sunset](https://dr-shorthair.github.io/bachrach-cox/assets/2023/Old-year-2.jpg)
+
+_Love from Simon, Amy and Abby (and Hugo)_
