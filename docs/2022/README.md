@@ -9,7 +9,9 @@ when I was in transit in Darwin, my departure from Australia having been delayed
 COVID shot. My brother Richard had managed to travel a week earlier, and he and my sister Sarah were with
 mum at the end. When I arrived it was straight into logistics. Tim was heroic as usual.
 
-![Mum's room at Olivet, Ackocks Green](/bachrach-cox/assets/2022/image11.png)
+![Mum's room at Olivet, Acocks Green](/assets/2022/image11.png)
+
+bachrach-cox/assets/2022/image11.png
 
 The funeral was nice. There was a big turnout, including many relatives that I
 hadn't seen in decades, and lots of Blands. We re-connected with our cousins James and Michael who
