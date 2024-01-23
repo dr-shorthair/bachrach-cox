@@ -68,7 +68,7 @@ Notwithstanding the retirement, through a combination of commitments and opportu
 
 ![Abby birthday](/bachrach-cox/assets/2023/Abby-birthday.jpg)
 
-### ... , along with my oldest friend Chris and his partner Daniel, who visited following his retirement
+### ... along with my oldest friend Chris and his partner Daniel
 
 ![Chris & Daniel @ Brighton Beach](/bachrach-cox/assets/2023/Chris-daniel.jpg)
 
@@ -98,9 +98,16 @@ Notwithstanding the retirement, through a combination of commitments and opportu
 ![Townend kent](/bachrach-cox/assets/2023/UK-kent.jpg)
 
 ### A few days in Belgium
+#### Brussels main square 
 
 ![Brussels](/bachrach-cox/assets/2023/Belgium-brussels-square.jpg)
+
+#### Low bridge in Ghent
+
 ![Ghent boat](/bachrach-cox/assets/2023/Belgium-ghent.jpg)
+
+#### Waiting for hot chocolate on a rainy day
+
 ![Hot chocolate](/bachrach-cox/assets/2023/Belgium-amy.jpg)
 
 <a id="CRISP"></a>
@@ -109,7 +116,7 @@ Notwithstanding the retirement, through a combination of commitments and opportu
 
 ### Fundrasing Aussie style
 
-#### sausage sizzle at Bunnings
+#### sausage-sizzle at Bunnings
 
 ![Fundraising Aussie style](/bachrach-cox/assets/2023/CRISP-sizzle.jpg)
 
@@ -135,9 +142,9 @@ Notwithstanding the retirement, through a combination of commitments and opportu
 
 ## Simon's second trip to France, in July
 
-### did you know there is an Eiffel tower in Lyon?
+### Did you know there is an Eiffel tower in Lyon?
 
-![Lyon - 'Eifel' tower](/bachrach-cox/assets/2023/Lyon-tower.jpg)
+![Lyon - 'Eiffel' tower](/bachrach-cox/assets/2023/Lyon-tower.jpg)
 
 ### it must have been hard work digging the graves on top of the monastery in the hill outside Beaucaire
 
@@ -151,7 +158,7 @@ Notwithstanding the retirement, through a combination of commitments and opportu
 
 ![Singapore architecture](/bachrach-cox/assets/2023/Singapore-building.jpg)
 
-### Singapore Slings in Raffles
+### _Singapore Slings_ in Raffles Long Bar
 
 ![Raffles](/bachrach-cox/assets/2023/Singapore-raffles.jpg)
 
@@ -175,7 +182,7 @@ Notwithstanding the retirement, through a combination of commitments and opportu
 
 ![China girls, Suzhou](/bachrach-cox/assets/2023/China-girls.jpg)
 
-### In the Humble Administrator's Garden with Steve and Nick
+### In the _Humble Administrator's Garden_ with Steve and Nick
 
 ![Humble administrators garden, Suzhou](/bachrach-cox/assets/2023/China-garden.jpg)
 
@@ -183,13 +190,17 @@ Notwithstanding the retirement, through a combination of commitments and opportu
 
 ![Definitely not vegetarian](/bachrach-cox/assets/2023/China-foodlabels-2.jpg)
 
+Chris says that a better translation would be “Suzhou [or Jiangsu] tasty chicken” (literally _chicken to make you salivate_)
+
 ### Not my grandma
 
 ![Not my Grandma](/bachrach-cox/assets/2023/China-foodlabels-1.jpg)
 
+The fish is drowned in alcohol before cooking ... 
+
 ## Stop making sense
 
-### at the Astor with Richard and Caroline
+### ... at the Astor with Richard and Caroline
 
 ![Making sense?](/bachrach-cox/assets/2023/Astor.jpg)
 
@@ -197,9 +208,13 @@ Notwithstanding the retirement, through a combination of commitments and opportu
 
 ## Gardening
 
-![CView from the deck](/bachrach-cox/assets/2023/Garden.jpg)
+### View from the deck
 
-### Artichokes choking the plum tree (its OK now)
+![View from the deck](/bachrach-cox/assets/2023/Garden.jpg)
+
+### Artichokes were choking the plum tree
+
+(its OK now - see above)
 
 ![Choking the plum tree](/bachrach-cox/assets/2023/Garden-artichoke.jpg)
 
