@@ -146,9 +146,11 @@ Notwithstanding the retirement, through a combination of commitments and opportu
 
 ![Lyon - 'Eiffel' tower](/bachrach-cox/assets/2023/Lyon-tower.jpg)
 
-### it must have been hard work digging the graves on top of the monastery in the hill outside Beaucaire
+### it must have been hard work digging these graves
 
 ![Digging graves the hard way](/bachrach-cox/assets/2023/Lyon-Beaucaire-graves.jpg)
+
+They are in the rock on top of a [cave monastery in Provence](https://en.wikipedia.org/wiki/Abbey_of_Saint-Roman)
 
 <a id="OGC"></a>
 
