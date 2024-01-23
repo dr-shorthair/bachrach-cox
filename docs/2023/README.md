@@ -12,7 +12,7 @@ Notwithstanding the retirement, through a combination of commitments and opportu
 
 ### Amy on Razorback Ridge in January
 
-![Razorback ridge](https://dr-shorthair.github.io/bachrach-cox/assets/2023/Feathertop.jpg)
+![Razorback ridge](/bachrach-cox/assets/2023/Feathertop.jpg)
 
 <a id="NSW"></a>
 
@@ -20,57 +20,57 @@ Notwithstanding the retirement, through a combination of commitments and opportu
 
 ### The beach in Wagga Wagga is 350km from the sea
 
-![Wagga beach is 350km from the sea](https://dr-shorthair.github.io/bachrach-cox/assets/2023/NSW-Wagga.jpg)
+![Wagga beach is 350km from the sea](/bachrach-cox/assets/2023/NSW-Wagga.jpg)
 
 ### On Manly beach
 
-![On the beach at Manly](https://dr-shorthair.github.io/bachrach-cox/assets/2023/NSW-Manly.jpg)
+![On the beach at Manly](/bachrach-cox/assets/2023/NSW-Manly.jpg)
 
 ### In the new NSW modern art gallery
 
-![Taking picture sideways in NSW gallery](https://dr-shorthair.github.io/bachrach-cox/assets/2023/NSW-gallery.jpg)
+![Taking picture sideways in NSW gallery](/bachrach-cox/assets/2023/NSW-gallery.jpg)
 
 ### We borrowed Richard and Caroline's campervan for a week
 
-![Campervan](https://dr-shorthair.github.io/bachrach-cox/assets/2023/NSW-van.jpg)
+![Campervan](/bachrach-cox/assets/2023/NSW-van.jpg)
 
 ### On the dolphin spotting boat in Port Stephens
 
-![On the dolphin boat in Port Stephens](https://dr-shorthair.github.io/bachrach-cox/assets/2023/NSW-PortStephens.jpg)
+![On the dolphin boat in Port Stephens](/bachrach-cox/assets/2023/NSW-PortStephens.jpg)
 
 ### South West Rocks
 
-![NSW Central Coast at South West Rocks](https://dr-shorthair.github.io/bachrach-cox/assets/2023/NSW-SWRocks.jpg)
+![NSW Central Coast at South West Rocks](/bachrach-cox/assets/2023/NSW-SWRocks.jpg)
 
 <a id="Abby-america"></a>
 
 ## Abby off to Central America
 
-![Departure](https://dr-shorthair.github.io/bachrach-cox/assets/2023/Abby-depart.jpg)
+![Departure](/bachrach-cox/assets/2023/Abby-depart.jpg)
 
 ### Coffee tasting
 
-![Coffee tasting](https://dr-shorthair.github.io/bachrach-cox/assets/2023/Abby-coffee-tasting.jpg)
+![Coffee tasting](/bachrach-cox/assets/2023/Abby-coffee-tasting.jpg)
 
 ### Beachside
 
-![Beachside](https://dr-shorthair.github.io/bachrach-cox/assets/2023/Abby-glamour.jpg)
+![Beachside](/bachrach-cox/assets/2023/Abby-glamour.jpg)
 
 ### Active volcano in Guatemala
 
-![Guatemala volcano](https://dr-shorthair.github.io/bachrach-cox/assets/2023/Abby-volcano.jpg)
+![Guatemala volcano](/bachrach-cox/assets/2023/Abby-volcano.jpg)
 
 ### Welcome home
 
-![Return](https://dr-shorthair.github.io/bachrach-cox/assets/2023/Abby-return.jpg)
+![Return](/bachrach-cox/assets/2023/Abby-return.jpg)
 
 ### We celebrated her birthday after she returned
 
-![Abby birthday](https://dr-shorthair.github.io/bachrach-cox/assets/2023/Abby-birthday.jpg)
+![Abby birthday](/bachrach-cox/assets/2023/Abby-birthday.jpg)
 
 ### ... , along with my oldest friend Chris and his partner Daniel, who visited following his retirement
 
-![Chris & Daniel @ Brighton Beach](https://dr-shorthair.github.io/bachrach-cox/assets/2023/Chris-daniel.jpg)
+![Chris & Daniel @ Brighton Beach](/bachrach-cox/assets/2023/Chris-daniel.jpg)
 
 <a id="Paris-etc"></a>
 
@@ -78,30 +78,30 @@ Notwithstanding the retirement, through a combination of commitments and opportu
 
 ### Bike tour in Paris (recommended!)
 
-![Bikes in Paris](https://dr-shorthair.github.io/bachrach-cox/assets/2023/Paris-bikes.jpg)
+![Bikes in Paris](/bachrach-cox/assets/2023/Paris-bikes.jpg)
 
 ### Sarah and Tim joined us in Paris
 
-![Seine by day](https://dr-shorthair.github.io/bachrach-cox/assets/2023/Paris-seine-day.jpg)
-![Seine by night](https://dr-shorthair.github.io/bachrach-cox/assets/2023/Paris-seine-night.jpg)
+![Seine by day](/bachrach-cox/assets/2023/Paris-seine-day.jpg)
+![Seine by night](/bachrach-cox/assets/2023/Paris-seine-night.jpg)
 
 ### Instagramming at the Opera
 
-![Insta-opera](https://dr-shorthair.github.io/bachrach-cox/assets/2023/Paris-opera.jpg)
+![Insta-opera](/bachrach-cox/assets/2023/Paris-opera.jpg)
 
 ### Meeting the newest family members - Stanley and Eadie
 
-![Grand neicephews](https://dr-shorthair.github.io/bachrach-cox/assets/2023/UK-family.jpg)
+![Grand neicephews](/bachrach-cox/assets/2023/UK-family.jpg)
 
 ### Dropping in on old friends Laurel and Alan in Kent
 
-![Townend kent](https://dr-shorthair.github.io/bachrach-cox/assets/2023/UK-kent.jpg)
+![Townend kent](/bachrach-cox/assets/2023/UK-kent.jpg)
 
 ### A few days in Belgium
 
-![Brussels](https://dr-shorthair.github.io/bachrach-cox/assets/2023/Belgium-brussels-square.jpg)
-![Ghent boat](https://dr-shorthair.github.io/bachrach-cox/assets/2023/Belgium-ghent.jpg)
-![Hot chocolate](https://dr-shorthair.github.io/bachrach-cox/assets/2023/Belgium-amy.jpg)
+![Brussels](/bachrach-cox/assets/2023/Belgium-brussels-square.jpg)
+![Ghent boat](/bachrach-cox/assets/2023/Belgium-ghent.jpg)
+![Hot chocolate](/bachrach-cox/assets/2023/Belgium-amy.jpg)
 
 <a id="CRISP"></a>
 
@@ -111,25 +111,25 @@ Notwithstanding the retirement, through a combination of commitments and opportu
 
 #### sausage sizzle at Bunnings
 
-![Fundraising Aussie style](https://dr-shorthair.github.io/bachrach-cox/assets/2023/CRISP-sizzle.jpg)
+![Fundraising Aussie style](/bachrach-cox/assets/2023/CRISP-sizzle.jpg)
 
 #### Pitching to supporters
 
-![Fundraising pitch in English](https://dr-shorthair.github.io/bachrach-cox/assets/2023/CRISP-pitch.jpg)
+![Fundraising pitch in English](/bachrach-cox/assets/2023/CRISP-pitch.jpg)
 
 ### Business meeting with some of the team
 
-![CRISPY meetings](https://dr-shorthair.github.io/bachrach-cox/assets/2023/CRISP-meeting.jpg)
+![CRISPY meetings](/bachrach-cox/assets/2023/CRISP-meeting.jpg)
 
 ### At the footy (St Kilda AFLW)
 
-![Local culture](https://dr-shorthair.github.io/bachrach-cox/assets/2023/CRISP-WAFL.jpg)
+![Local culture](/bachrach-cox/assets/2023/CRISP-WAFL.jpg)
 
 <a id="parly"></a>
 
 ## Simon and Amy spent a week in Parliament in May, supporting our local independent
 
-![Parly](https://dr-shorthair.github.io/bachrach-cox/assets/2023/Parly.jpg)
+![Parly](/bachrach-cox/assets/2023/Parly.jpg)
 
 <a id="Lyon-etc"></a>
 
@@ -137,11 +137,11 @@ Notwithstanding the retirement, through a combination of commitments and opportu
 
 ### did you know there is an Eiffel tower in Lyon?
 
-![Lyon - 'Eifel' tower](https://dr-shorthair.github.io/bachrach-cox/assets/2023/Lyon-tower.jpg)
+![Lyon - 'Eifel' tower](/bachrach-cox/assets/2023/Lyon-tower.jpg)
 
 ### it must have been hard work digging the graves on top of the monastery in the hill outside Beaucaire
 
-![Digging graves the hard way](https://dr-shorthair.github.io/bachrach-cox/assets/2023/Lyon-Beaucaire-graves.jpg)
+![Digging graves the hard way](/bachrach-cox/assets/2023/Lyon-Beaucaire-graves.jpg)
 
 <a id="OGC"></a>
 
@@ -149,11 +149,11 @@ Notwithstanding the retirement, through a combination of commitments and opportu
 
 ### Strange place to keep a ship
 
-![Singapore architecture](https://dr-shorthair.github.io/bachrach-cox/assets/2023/Singapore-building.jpg)
+![Singapore architecture](/bachrach-cox/assets/2023/Singapore-building.jpg)
 
 ### Singapore Slings in Raffles
 
-![Raffles](https://dr-shorthair.github.io/bachrach-cox/assets/2023/Singapore-raffles.jpg)
+![Raffles](/bachrach-cox/assets/2023/Singapore-raffles.jpg)
 
 <a id="Dagstuhl"></a>
 
@@ -161,11 +161,11 @@ Notwithstanding the retirement, through a combination of commitments and opportu
 
 ### France / Germany / Luxembourg touch in the middle of the river in Schengen
 
-![This is Schengen](https://dr-shorthair.github.io/bachrach-cox/assets/2023/Dagstuhl-schengen.jpg)
+![This is Schengen](/bachrach-cox/assets/2023/Dagstuhl-schengen.jpg)
 
 ### My accommodation in Schloss Dagstuhl
 
-![Schloss Dagstuhl](https://dr-shorthair.github.io/bachrach-cox/assets/2023/Dagstuhl-schloss.jpg)
+![Schloss Dagstuhl](/bachrach-cox/assets/2023/Dagstuhl-schloss.jpg)
 
 <a id="China"></a>
 
@@ -173,25 +173,25 @@ Notwithstanding the retirement, through a combination of commitments and opportu
 
 ### China girls
 
-![China girls, Suzhou](https://dr-shorthair.github.io/bachrach-cox/assets/2023/China-girls.jpg)
+![China girls, Suzhou](/bachrach-cox/assets/2023/China-girls.jpg)
 
 ### In the Humble Administrator's Garden with Steve and Nick
 
-![Humble administrators garden, Suzhou](https://dr-shorthair.github.io/bachrach-cox/assets/2023/China-garden.jpg)
+![Humble administrators garden, Suzhou](/bachrach-cox/assets/2023/China-garden.jpg)
 
 ### Not vegetarian
 
-![Definitely not vegetarian](https://dr-shorthair.github.io/bachrach-cox/assets/2023/China-foodlabels-2.jpg)
+![Definitely not vegetarian](/bachrach-cox/assets/2023/China-foodlabels-2.jpg)
 
 ### Not my grandma
 
-![Not my Grandma](https://dr-shorthair.github.io/bachrach-cox/assets/2023/China-foodlabels-1.jpg)
+![Not my Grandma](/bachrach-cox/assets/2023/China-foodlabels-1.jpg)
 
 ## Stop making sense
 
 ### at the Astor with Richard and Caroline
 
-![Making sense?](https://dr-shorthair.github.io/bachrach-cox/assets/2023/Astor.jpg)
+![Making sense?](/bachrach-cox/assets/2023/Astor.jpg)
 
 <a id="Garden"></a>
 
@@ -199,19 +199,19 @@ Notwithstanding the retirement, through a combination of commitments and opportu
 
 ### Artichokes choking the plum tree (its OK now)
 
-![Choking the plum tree](https://dr-shorthair.github.io/bachrach-cox/assets/2023/Garden-artichoke.jpg)
+![Choking the plum tree](/bachrach-cox/assets/2023/Garden-artichoke.jpg)
 
 ### After harvesting around 60 chokes we let the rest flower
 
-![Artichoke flowers](https://dr-shorthair.github.io/bachrach-cox/assets/2023/Garden-artichoke-flowers.jpg)
+![Artichoke flowers](/bachrach-cox/assets/2023/Garden-artichoke-flowers.jpg)
 
 ### Big fennel
 
-![Fennel](https://dr-shorthair.github.io/bachrach-cox/assets/2023/Garden-fennel.jpg)
+![Fennel](/bachrach-cox/assets/2023/Garden-fennel.jpg)
 
 ### Rhubarb custard tart
 
-![Rhubarb tart](https://dr-shorthair.github.io/bachrach-cox/assets/2023/Garden-rhubarb.jpg)
+![Rhubarb tart](/bachrach-cox/assets/2023/Garden-rhubarb.jpg)
 
 <a id="New-Year"></a>
 
@@ -219,11 +219,11 @@ Notwithstanding the retirement, through a combination of commitments and opportu
 
 ### Xmas present - 7mm wetsuit for southern diving
 
-![Scuba suit](https://dr-shorthair.github.io/bachrach-cox/assets/2023/Abby-scuba.jpg)
+![Scuba suit](/bachrach-cox/assets/2023/Abby-scuba.jpg)
 
 ### Seeing out the old year in traditional Bachrach-Cox style
 
-![Seeing out the old year](https://dr-shorthair.github.io/bachrach-cox/assets/2023/Old-year-1.jpg)
-![Seeing out the sunset](https://dr-shorthair.github.io/bachrach-cox/assets/2023/Old-year-2.jpg)
+![Seeing out the old year](/bachrach-cox/assets/2023/Old-year-1.jpg)
+![Seeing out the sunset](/bachrach-cox/assets/2023/Old-year-2.jpg)
 
 _Love from Simon, Amy and Abby (and Hugo)_

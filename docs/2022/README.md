@@ -24,7 +24,7 @@ last visit in late 2019 thanks to his deafness, this was barely a shadow of my f
 been making the unpleasant drive across south Birmingham as often as COVID allowed for two years, so the
 changes had been more gradual for them. Richard and I said our farewells to him before we returned
 home.
-(/bachrach-cox/assets
+
 ![Walking in the wet on Simon's birthday](/bachrach-cox/assets/2022/image7.png)
 
 So most of January, I was at my sister's house, sharing a bedroom with my
