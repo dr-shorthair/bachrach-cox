@@ -197,6 +197,8 @@ Notwithstanding the retirement, through a combination of commitments and opportu
 
 ## Gardening
 
+![CView from the deck](/bachrach-cox/assets/2023/Garden.jpg)
+
 ### Artichokes choking the plum tree (its OK now)
 
 ![Choking the plum tree](/bachrach-cox/assets/2023/Garden-artichoke.jpg)
