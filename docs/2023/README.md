@@ -135,6 +135,7 @@ Notwithstanding the retirement, through a combination of commitments and opportu
 ## Simon and Amy spent a week in Parliament in May
 
 supporting our local independent
+
 ![Parly](/bachrach-cox/assets/2023/Parly.jpg)
 
 <a id="Lyon-etc"></a>
@@ -219,7 +220,7 @@ The fish is drowned in alcohol before cooking ...
 
 (its OK now - see above)
 
-### We harvesting around 60 chokes then let the rest flower
+### We harvested around 60 chokes then let the rest flower
 
 ![Artichoke flowers](/bachrach-cox/assets/2023/Garden-artichoke-flowers.jpg)
 
