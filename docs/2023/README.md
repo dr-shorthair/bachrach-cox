@@ -68,7 +68,7 @@ Notwithstanding the retirement, through a combination of commitments and opportu
 
 ![Abby birthday](/bachrach-cox/assets/2023/Abby-birthday.jpg)
 
-### ... along with my oldest friend Chris and his partner Daniel
+### ... with my oldest friend Chris and his partner Daniel
 
 ![Chris & Daniel @ Brighton Beach](/bachrach-cox/assets/2023/Chris-daniel.jpg)
 
@@ -114,17 +114,15 @@ Notwithstanding the retirement, through a combination of commitments and opportu
 
 ## Refugee support
 
-### Fundrasing Aussie style
-
-#### sausage-sizzle at Bunnings
+### Fundraising sausage-sizzle at Bunnings
 
 ![Fundraising Aussie style](/bachrach-cox/assets/2023/CRISP-sizzle.jpg)
 
-#### Pitching to supporters
+### Pitching to supporters
 
 ![Fundraising pitch in English](/bachrach-cox/assets/2023/CRISP-pitch.jpg)
 
-### Business meeting with some of the team
+### Meeting with some of the team
 
 ![CRISPY meetings](/bachrach-cox/assets/2023/CRISP-meeting.jpg)
 
@@ -134,8 +132,9 @@ Notwithstanding the retirement, through a combination of commitments and opportu
 
 <a id="parly"></a>
 
-## Simon and Amy spent a week in Parliament in May, supporting our local independent
+## Simon and Amy spent a week in Parliament in May
 
+supporting our local independent
 ![Parly](/bachrach-cox/assets/2023/Parly.jpg)
 
 <a id="Lyon-etc"></a>
@@ -146,11 +145,11 @@ Notwithstanding the retirement, through a combination of commitments and opportu
 
 ![Lyon - 'Eiffel' tower](/bachrach-cox/assets/2023/Lyon-tower.jpg)
 
-### it must have been hard work digging these graves
+### it would have been hard work digging these graves
 
 ![Digging graves the hard way](/bachrach-cox/assets/2023/Lyon-Beaucaire-graves.jpg)
 
-They are in the rock on top of a [cave monastery in Provence](https://en.wikipedia.org/wiki/Abbey_of_Saint-Roman)
+They are in the rock on top of a [cave monastery in Gard](https://en.wikipedia.org/wiki/Abbey_of_Saint-Roman)
 
 <a id="OGC"></a>
 
@@ -168,7 +167,7 @@ They are in the rock on top of a [cave monastery in Provence](https://en.wikiped
 
 ## Germany in October
 
-### France / Germany / Luxembourg touch in the middle of the river in Schengen
+### France+Germany+Luxembourg touch in the middle of the river in Schengen
 
 ![This is Schengen](/bachrach-cox/assets/2023/Dagstuhl-schengen.jpg)
 
@@ -184,7 +183,7 @@ They are in the rock on top of a [cave monastery in Provence](https://en.wikiped
 
 ![China girls, Suzhou](/bachrach-cox/assets/2023/China-girls.jpg)
 
-### In the _Humble Administrator's Garden_ with Steve and Nick
+### _Humble Administrator's Garden_ with Steve and Nick
 
 ![Humble administrators garden, Suzhou](/bachrach-cox/assets/2023/China-garden.jpg)
 
@@ -202,7 +201,7 @@ The fish is drowned in alcohol before cooking ...
 
 ## Stop making sense
 
-### ... at the Astor with Richard and Caroline
+... at the Astor with Richard and Caroline
 
 ![Making sense?](/bachrach-cox/assets/2023/Astor.jpg)
 
@@ -214,13 +213,13 @@ The fish is drowned in alcohol before cooking ...
 
 ![View from the deck](/bachrach-cox/assets/2023/Garden.jpg)
 
-### Artichokes were choking the plum tree
-
-(its OK now - see above)
+### Artichoking the plum tree
 
 ![Choking the plum tree](/bachrach-cox/assets/2023/Garden-artichoke.jpg)
 
-### After harvesting around 60 chokes we let the rest flower
+(its OK now - see above)
+
+### We harvesting around 60 chokes then let the rest flower
 
 ![Artichoke flowers](/bachrach-cox/assets/2023/Garden-artichoke-flowers.jpg)
 
